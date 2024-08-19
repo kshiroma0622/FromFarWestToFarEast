@@ -2,40 +2,63 @@
 
 ## 箱崎
 ### 天井桟敷
-https://tabelog.com/fukuoka/A4001/A400201/40003333/
-### 箱崎とろろ
-https://hakozaki-tororo.com/hakotoro/
-### 将門とか家康とか
+https://tabelog.com/fukuoka/A4001/A400201/40003333/  
+箱崎宮参道の隣にある、古民家を居酒屋にしたお店  
+チーズフォンデュなどがおいしい  
 
+### 箱崎とろろ
+https://hakozaki-tororo.com/hakotoro/  
+箱崎を冠しているが、どちらかといえば馬出になると思う  
+ここも古民家を利用して趣があってよし  
+### 将門とか家康とか
+そのへんブラブラしながら探してもよし  
 ## 六本松周辺
 ### 若松
+土曜日に営業しているかは知らん。20時くらいがLO。  
+この前値上げがあって650円になった。
 ### のんちゃん
+いわずもがな
 ### 大将
+いわずもがな
 ### アトムボーイ跡地の清香園（やきにく）
 ### 桜島
-https://sakurkjima.owst.jp/
+https://sakurkjima.owst.jp/  
+202と観光道路の交差点にあるお店。学生時代1度は行ってみたかった
 ### ぴかいち
-https://www.hotpepper.jp/strJ003324671/appearance/#appearance
+https://www.hotpepper.jp/strJ003324671/appearance/#appearance  
+同じく202号沿いにあるお店。一度は行ってみたかった
 ### 大春跡地の小料理屋
+大春は閉店して（たぶん）建物も変わって、別のお店になっている
 ### 長州跡地 とら食堂
-### 他、キャンパス跡地の再開発もあって、周辺に隠れ家的お店が増えている。
+残念ながら長州は閉店したが、跡地にとら食堂という醤油ラーメンの店が出来ていて、結構うまい。
+### 他
+キャンパス跡地の再開発もあって、周辺に隠れ家的お店が増えている。  
+#### 豆皿中華  
+https://tabelog.com/fukuoka/A4001/A400105/40048097/  
+うまいのだが騒がしいのでお勧めしない  
+#### ひとさら
+https://www.facebook.com/kiyokihitosina/  
+夜は営業してないかな
 ## 大名周辺
 ### 大名小跡地ガーデンシティのレストラン
-https://fukuoka-dgc.jp/shop/
-
+https://fukuoka-dgc.jp/shop/  
+大名小の跡地北側にできた複合商業施設  
+レストランもうまそう
 ## 薬院
 ### 薬院 餃子李
 ### 桜坂 いむり
 https://kanzan.net/imuri/shop/
 ### 山の上ホテルのビアガーデン
-https://hilltopresort-fukuoka.com/beerterrace2024/
-
+https://hilltopresort-fukuoka.com/beerterrace2024/  
+料理のコスパわるいが、眺めはいい
 ## 博多駅周辺
 ### ニッシーおすすめ店（名前忘れた）
 ### 中洲川端 いろは 
-https://hakata-iroha.net/shop/honten.php
+https://hakata-iroha.net/shop/honten.php  
+博多といえば、水炊きだろ？
 
 ## その他地区
 ### 次郎丸 もつ鍋万十屋
-https://manjuuya.co.jp/map.html
+https://manjuuya.co.jp/map.html  
+お店の人が鍋奉行してくれるので楽
 ### 阿蘭陀館
